@@ -1,6 +1,6 @@
 ## Qui je suis ?
 
-<img src="https://cdn.discordapp.com/attachments/752257418842603640/754111988174422097/tenor.gif" align="right" alt="GIF" >
+<img src="https://cdn.discordapp.com/attachments/743885081868894208/754514483661242475/CommonTartCur-max-1mb.gif" align="right" alt="GIF" >
 
 <br>
 
